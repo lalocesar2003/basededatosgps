@@ -1,0 +1,2 @@
+# basededatosgps
+fonchi gay?
